@@ -1,8 +1,8 @@
 # Safirah Dwi K
 Mahasiswa Ilmu Komputer IPB
 
-Jl.Tanjung 3 Depok_
-+62 857-1536-5978_
+_Jl.Tanjung 3 Depok\
++62 857-1536-5978\
 safirahdwi@gmail.com_
 
 ## Pendidikan
